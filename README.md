@@ -1,0 +1,2 @@
+# rinterval.github.io
+Currently engaged as a full-time student at the University of Central Florida, dual-majoring in both the College of Engineering and Interdisciplinary Studies. Focuses include computer science and programming, research and study of psychology and philosophy in virtual environments, and the development and productivity of the entrepreneurial mindset. Additional skills include public relations, event organization, and making great coffee.
